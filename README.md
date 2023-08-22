@@ -1,2 +1,2 @@
 tutorial
-bagaimana caranya?
+bagaimana caranya ya?
