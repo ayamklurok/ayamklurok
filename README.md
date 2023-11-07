@@ -1,1 +1,1 @@
-ayam jago
+ayam jago klurok
