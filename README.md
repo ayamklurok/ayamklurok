@@ -1,1 +1,1 @@
-ayam
+ayam jago
