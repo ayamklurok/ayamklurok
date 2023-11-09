@@ -1,2 +1,2 @@
 ayam jago klurok
-aya
+ayam
