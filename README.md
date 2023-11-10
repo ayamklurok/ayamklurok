@@ -1,2 +1,2 @@
 ayam jago klurok
-ayam 2
+ayam d
