@@ -1,3 +1,3 @@
 ayam jago klurok
 ayam dua
-<br/>ayam jago ja
+<br/>ayam jago jag
